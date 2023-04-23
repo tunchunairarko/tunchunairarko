@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I own a startup e-commerce consulting agency called Decipher Tech.<br>🌱 I'm currently learning about >> Medusa, Next and web communication protocols.<br>🤔 I'm looking for help with >> CAD design<br>💬 I'm available for discussion >> on Real Madrid, Gintama, geeky topics, DC comics and The Boys<br>📫 How to reach me >> tunchunairarko@gmail.com<br>😄 Pronoun: Lord (J.K., it's he/him)<br>⚡ Fun fact: You can always start a conversation with me if it involves Real Madrid.
+🔭 I work as a CAD Support Engineer at ST Microelectronics, and own a startup e-commerce consulting agency called Decipher Tech.<br>🌱 I'm currently learning about >> Medusa, Next and web communication protocols.<br>🤔 I'm looking for help with >> CAD design<br>💬 I'm available for discussion >> on Real Madrid, Gintama, geeky topics, DC comics and The Boys<br>📫 How to reach me >> tunchunairarko@gmail.com<br>😄 Pronoun: Lord (J.K., it's he/him)<br>⚡ Fun fact: You can always start a conversation with me if it involves Real Madrid.
 
 
 ## 🌐 Socials:
